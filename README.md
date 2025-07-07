@@ -19,4 +19,4 @@
 
 只要掌握以上规律，无论你是观众还是站长，都能轻松实现“日本AV免费”关键词的精准匹配与高效体验，让你随时随地快速进入想看的世界，无门槛、无干扰、无等待。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dungcochet20250707/dungcochet9 ）</span>
